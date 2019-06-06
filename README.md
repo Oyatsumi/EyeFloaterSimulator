@@ -1,1 +1,0 @@
-Eye Floaters Simulator
